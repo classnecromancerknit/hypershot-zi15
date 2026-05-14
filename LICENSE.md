@@ -1,4 +1,4 @@
-#  
+#  exclusive hypershot Scripts offers the most advanced hypershot Script, with unlimited stamina and auto-heal. Perfect for dominating any match.
 
 
 
